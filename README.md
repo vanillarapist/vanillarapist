@@ -4,3 +4,4 @@
 200X.10.09
 adhd + aspd
 dni: muslims n sissies
+- i have (hyper?)fixation on kaito momota, saimota and drv3 generally!!!

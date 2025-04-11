@@ -2,3 +2,4 @@
 
 200X.10.09
 adhd + aspd
+dni: muslims n sissies

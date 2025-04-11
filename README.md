@@ -6,3 +6,4 @@ rus/bad eng
 adhd + aspd
 dni: muslims n sissies
 - i have (hyper?)fixation on kaito momota, saimota and drv3 generally!!!
+- I also write text with a quirk and always ignore the first letter in caps lock and if it make u feel uncomfortable kill urself

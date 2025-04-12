@@ -83,6 +83,7 @@
 
 - i have (hyper?)fixation on kaito momota saimota and drv3 generally!!!!!!!
 
+![image](https://github.com/user-attachments/assets/11b1e46c-1620-4d4e-807f-328f3fcc95c0)
 ![image](https://github.com/user-attachments/assets/284b7fe2-d6df-414e-8150-d9998e703391) ![kaito-momota](https://github.com/user-attachments/assets/0141292d-0718-4ada-845e-09eb062162cc)
 
 
@@ -90,7 +91,8 @@
 ![tumblr_48b52d96ca225429ade293626506e428_e82b7fa4_400](https://github.com/user-attachments/assets/5f85c359-4557-4aa9-807f-cb995b6a0370)![tumblr_48b52d96ca225429ade293626506e428_e82b7fa4_400](https://github.com/user-attachments/assets/5f85c359-4557-4aa9-807f-cb995b6a0370)
 
 
-![giphy](https://github.com/user-attachments/assets/ed1767dc-8071-4cd2-8fd9-7ccd7065998d)
+![giphy](https://github.com/user-attachments/assets/ed1767dc-8071-4cd2-8fd9-7ccd7065998d) ![Danganronpa_V3_Kaito_Momota_Death_Road_of_Despair_Sprite_05](https://github.com/user-attachments/assets/e312f740-fa7a-4e0c-90e0-0c55231efecd)
+
 
 
 

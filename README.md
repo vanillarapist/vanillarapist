@@ -15,7 +15,7 @@
 .⊹  . ╜ ▭ׅ࣪‌ ▬𝆬  ESFP 7W8 783 sx/so sang-hol EFVL ꒰𔘓‌꒱ ▭ׅ࣪‌ ▬𝆬 ╙.  ⊹.
 
 
-![image](https://github.com/user-attachments/assets/a64e49c5-f166-4493-bddc-67b8c1cae79d) ![image](https://github.com/user-attachments/assets/0c63e03e-cbbc-4676-a05c-6df12d77cfae)
+![image](https://github.com/user-attachments/assets/a64e49c5-f166-4493-bddc-67b8c1cae79d) ![image](https://github.com/user-attachments/assets/0c63e03e-cbbc-4676-a05c-6df12d77cfae) 
 
 
 
@@ -49,7 +49,6 @@
 
 - i also write text with a quirk n always ignore the first letter in caps lock n if it make u feel uncomfortable just endure lol
 
-![image](https://github.com/user-attachments/assets/74425b58-54bb-436c-8f03-0e8b548910ac)
 
 
 ![tumblr_48b52d96ca225429ade293626506e428_e82b7fa4_400](https://github.com/user-attachments/assets/5f85c359-4557-4aa9-807f-cb995b6a0370)![tumblr_48b52d96ca225429ade293626506e428_e82b7fa4_400](https://github.com/user-attachments/assets/5f85c359-4557-4aa9-807f-cb995b6a0370)

@@ -37,7 +37,7 @@
 
 ⋆ ⊱ ⋆ 𒄬  dni: muslims jerks n sissies ⋆ 𒄬 ⋆ ⊱
 
- ![image](https://github.com/user-attachments/assets/d4d33be9-defb-47f7-b6e7-7c4214a120f0) ![image](https://github.com/user-attachments/assets/690dbb62-05d3-4c33-8055-cc268b173e1c)
+
 ![image](https://github.com/user-attachments/assets/b71c9403-6588-4b64-9a6b-86f08eb9b945)
  ![image](https://github.com/user-attachments/assets/49455127-9b2b-430d-a0be-34aa0e8eef90) ![image](https://github.com/user-attachments/assets/be558bac-af98-4420-9521-5606c099003e) ![image](https://github.com/user-attachments/assets/04d133fc-42ec-4045-8e24-a2b11cb33e6d) ![image](https://github.com/user-attachments/assets/751352a5-019f-4b47-8636-e4aa4527f313)
 

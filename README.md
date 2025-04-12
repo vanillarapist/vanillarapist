@@ -21,7 +21,8 @@ any prns
 dni: muslims n sissies
 
 
-![image](https://github.com/user-attachments/assets/6c92df24-0f9f-4953-b6ac-8fb9b3f5f579)
+![image](https://github.com/user-attachments/assets/feaede8b-c464-4fc7-9eaf-30c2f3b332a3)
+
 
 
 

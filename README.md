@@ -26,7 +26,7 @@
 
 
 
-☆῾ .━۫⌒۫━۫  any prns  ｢ ⋆ ｣ ━۫⌒۫━῾ . ☆
+☆῾ .━۫⌒۫━۫  ᴀɴʏ ᴘʀɴs  ｢ ⋆ ｣ ━۫⌒۫━῾ . ☆
 
 
 ![tumblr_508a51eb4acd3e0e3662d0df6515bc8b_dbf31877_1280](https://github.com/user-attachments/assets/a9d314fa-66c6-4bcb-9d31-c98afe81d7c9)
@@ -35,7 +35,7 @@
 
 
 
-⋆ ⊱ ⋆ 𒄬  dni: muslims jerks n sissies ⋆ 𒄬 ⋆ ⊱
+⋆ ⊱ ⋆ 𒄬  ᴅɴɪ: ᴍᴜsʟɪᴍs ᴊᴇʀᴋs ɴ sɪssɪᴇs ⋆ 𒄬 ⋆ ⊱
 
 
 ![image](https://github.com/user-attachments/assets/b71c9403-6588-4b64-9a6b-86f08eb9b945)

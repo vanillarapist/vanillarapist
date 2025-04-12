@@ -1,7 +1,9 @@
 
 ![image](https://github.com/user-attachments/assets/8f49530f-6c5a-4444-9e2d-e293e1149983)
 
-![Без названия794_20250412181310](https://github.com/user-attachments/assets/7211b44d-c28a-49d8-ac0a-4cb6d43612f8)
+![Без названия794_20250412182114 (2)](https://github.com/user-attachments/assets/a03c21f8-e71b-4104-abd9-4824f77b482a)
+
+
 
 
 

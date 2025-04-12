@@ -104,8 +104,8 @@
 
 
 
+bye byeee ![kaito-momota](https://github.com/user-attachments/assets/39e88e16-b235-40d8-8b19-b6fd7f518624)
 
-![danganronpa-saimota](https://github.com/user-attachments/assets/4d514f5e-282a-474f-ba55-cf67d96a5363)
 
 
-bb
+

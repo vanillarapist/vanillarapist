@@ -20,6 +20,7 @@ any prns
 
 dni: muslims n sissies
 
+![image](https://github.com/user-attachments/assets/6ef86851-779a-4016-9ce8-1ab7e61f6fd5)
 
 
 - i have (hyper?)fixation on kaito momota, saimota and drv3 generally!!!!!!!

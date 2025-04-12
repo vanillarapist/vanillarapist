@@ -27,7 +27,8 @@ dni: muslims n sissies
 
 
 
-![giphy](https://github.com/user-attachments/assets/8d01b7ab-8ab4-4ae2-9d84-21cf896c25d9) ![image](https://github.com/user-attachments/assets/39cd0eb5-c3eb-4517-8cd4-8bf44cdceb1d)
+![giphy](https://github.com/user-attachments/assets/8d01b7ab-8ab4-4ae2-9d84-21cf896c25d9)
+
 
 
 

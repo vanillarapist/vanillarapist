@@ -68,9 +68,9 @@
 
 
 
-![images](https://github.com/user-attachments/assets/0d6e7c18-2860-48a9-a3f0-0f8fc682b1cb)
 
 
+![danganronpa-saimota](https://github.com/user-attachments/assets/4d514f5e-282a-474f-ba55-cf67d96a5363)
 
 
 bb 

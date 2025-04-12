@@ -1,5 +1,6 @@
 
-![image](https://github.com/user-attachments/assets/765a11af-3652-4ba9-94ed-72a87ab23a3b)
+![image](https://github.com/user-attachments/assets/8f49530f-6c5a-4444-9e2d-e293e1149983)
+
 
 
 rus/bad eng

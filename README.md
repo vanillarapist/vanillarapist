@@ -26,7 +26,6 @@ dni: muslims n sissies
 - i also write text with a quirk n always ignore the first letter in caps lock n if it make u feel uncomfortable just endure lol
 
 
-![image](https://github.com/user-attachments/assets/2ba2b61e-05d8-425b-b4b4-016c29b82f27)
 
 
 
@@ -34,4 +33,4 @@ dni: muslims n sissies
 ![images](https://github.com/user-attachments/assets/0d6e7c18-2860-48a9-a3f0-0f8fc682b1cb)
 
 
-byeee
+bb :P

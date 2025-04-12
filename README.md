@@ -21,13 +21,15 @@ any prns
 dni: muslims n sissies
 
 
-![image](https://github.com/user-attachments/assets/feaede8b-c464-4fc7-9eaf-30c2f3b332a3)
+![image](https://github.com/user-attachments/assets/feaede8b-c464-4fc7-9eaf-30c2f3b332a3) 
 
 
 
 
 
-![giphy](https://github.com/user-attachments/assets/8d01b7ab-8ab4-4ae2-9d84-21cf896c25d9)
+ ![giphy](https://github.com/user-attachments/assets/d9c25f0a-b035-4ed5-ad3e-4c63ec3e8d01)![giphy](https://github.com/user-attachments/assets/ed1767dc-8071-4cd2-8fd9-7ccd7065998d)
+
+
 
 
 

@@ -59,8 +59,7 @@
 
 
 
- ![giphy](https://github.com/user-attachments/assets/d9c25f0a-b035-4ed5-ad3e-4c63ec3e8d01)![kaito-momota](https://github.com/user-attachments/assets/0141292d-0718-4ada-845e-09eb062162cc)
-
+ ![giphy](https://github.com/user-attachments/assets/d9c25f0a-b035-4ed5-ad3e-4c63ec3e8d01)
 
 
 
@@ -79,7 +78,8 @@
 
 - i have (hyper?)fixation on kaito momota saimota and drv3 generally!!!!!!!
 
-![image](https://github.com/user-attachments/assets/284b7fe2-d6df-414e-8150-d9998e703391)
+![image](https://github.com/user-attachments/assets/284b7fe2-d6df-414e-8150-d9998e703391) ![kaito-momota](https://github.com/user-attachments/assets/0141292d-0718-4ada-845e-09eb062162cc)
+
 
 
 ![tumblr_48b52d96ca225429ade293626506e428_e82b7fa4_400](https://github.com/user-attachments/assets/5f85c359-4557-4aa9-807f-cb995b6a0370)![tumblr_48b52d96ca225429ade293626506e428_e82b7fa4_400](https://github.com/user-attachments/assets/5f85c359-4557-4aa9-807f-cb995b6a0370)

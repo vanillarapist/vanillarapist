@@ -22,6 +22,11 @@ dni: muslims n sissies
 
 
 
+![giphy](https://github.com/user-attachments/assets/8d01b7ab-8ab4-4ae2-9d84-21cf896c25d9)
+
+
+
+
 - i have (hyper?)fixation on kaito momota, saimota and drv3 generally!!!!!!!
 - i also write text with a quirk n always ignore the first letter in caps lock n if it make u feel uncomfortable just endure lol
 

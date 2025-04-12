@@ -25,6 +25,8 @@
 ⋆ ⊱ ⋆ 𒄬  dni: muslims n sissies ⋆ 𒄬 ⋆ ⊱
 
 
+
+
 ![image](https://github.com/user-attachments/assets/feaede8b-c464-4fc7-9eaf-30c2f3b332a3) 
 
 
@@ -47,6 +49,7 @@
 
 - i also write text with a quirk n always ignore the first letter in caps lock n if it make u feel uncomfortable just endure lol
 
+![image](https://github.com/user-attachments/assets/74425b58-54bb-436c-8f03-0e8b548910ac)
 
 
 ![tumblr_48b52d96ca225429ade293626506e428_e82b7fa4_400](https://github.com/user-attachments/assets/5f85c359-4557-4aa9-807f-cb995b6a0370)![tumblr_48b52d96ca225429ade293626506e428_e82b7fa4_400](https://github.com/user-attachments/assets/5f85c359-4557-4aa9-807f-cb995b6a0370)

@@ -15,6 +15,10 @@
 .⊹  . ╜ ▭ׅ࣪‌ ▬𝆬  ESFP 7W8 783 sx/so sang-hol EFVL ꒰𔘓‌꒱ ▭ׅ࣪‌ ▬𝆬 ╙.  ⊹.
 
 
+![image](https://github.com/user-attachments/assets/a64e49c5-f166-4493-bddc-67b8c1cae79d) ![image](https://github.com/user-attachments/assets/0c63e03e-cbbc-4676-a05c-6df12d77cfae)
+
+
+
 ☆῾ .━۫⌒۫━۫  any prns  ｢ ⋆ ｣ ━۫⌒۫━῾ . ☆
 
 

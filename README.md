@@ -12,7 +12,7 @@ rus/bad eng
 adhd + aspd
 
 
-ESFP 7W8 783 SX/SO SANG-HOL EFVL
+ESFP 7W8 783 sx/so sang-hol EFVL
 
 
 any prns

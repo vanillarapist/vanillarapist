@@ -25,6 +25,14 @@
 ⋆ ⊱ ⋆ 𒄬  dni: muslims n sissies ⋆ 𒄬 ⋆ ⊱
 
 
+![image](https://github.com/user-attachments/assets/06de885d-f8b0-4008-82ef-e180c1cd6117) ![image](https://github.com/user-attachments/assets/49455127-9b2b-430d-a0be-34aa0e8eef90) ![image](https://github.com/user-attachments/assets/be558bac-af98-4420-9521-5606c099003e) ![image](https://github.com/user-attachments/assets/04d133fc-42ec-4045-8e24-a2b11cb33e6d) ![image](https://github.com/user-attachments/assets/751352a5-019f-4b47-8636-e4aa4527f313)
+
+
+
+
+
+
+
 
 
 ![image](https://github.com/user-attachments/assets/feaede8b-c464-4fc7-9eaf-30c2f3b332a3) 
@@ -40,15 +48,17 @@
 
 
 
-![tumblr_48b52d96ca225429ade293626506e428_e82b7fa4_400](https://github.com/user-attachments/assets/5f85c359-4557-4aa9-807f-cb995b6a0370)![tumblr_48b52d96ca225429ade293626506e428_e82b7fa4_400](https://github.com/user-attachments/assets/5f85c359-4557-4aa9-807f-cb995b6a0370)
+![tumblr_48b52d96ca225429ade293626506e428_e82b7fa4_400](https://github.com/user-attachments/assets/5f85c359-4557-4aa9-807f-cb995b6a0370)![tumblr_48b52d96ca225429ade293626506e428_e82b7fa4_400](https://github.com/user-attachments/assets/5f85c359-4557-4aa9-807f-cb995b6a0370) 
 
 
-
-- i have (hyper?)fixation on kaito momota, saimota and drv3 generally!!!!!!!
 
 
 - i also write text with a quirk n always ignore the first letter in caps lock n if it make u feel uncomfortable just endure lol
 
+
+- i have (hyper?)fixation on kaito momota, saimota and drv3 generally!!!!!!!
+
+![image](https://github.com/user-attachments/assets/284b7fe2-d6df-414e-8150-d9998e703391)
 
 
 ![tumblr_48b52d96ca225429ade293626506e428_e82b7fa4_400](https://github.com/user-attachments/assets/5f85c359-4557-4aa9-807f-cb995b6a0370)![tumblr_48b52d96ca225429ade293626506e428_e82b7fa4_400](https://github.com/user-attachments/assets/5f85c359-4557-4aa9-807f-cb995b6a0370)

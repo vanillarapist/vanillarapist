@@ -59,7 +59,7 @@
 
 
 
- ![giphy](https://github.com/user-attachments/assets/d9c25f0a-b035-4ed5-ad3e-4c63ec3e8d01)![giphy](https://github.com/user-attachments/assets/ed1767dc-8071-4cd2-8fd9-7ccd7065998d)
+ ![giphy](https://github.com/user-attachments/assets/d9c25f0a-b035-4ed5-ad3e-4c63ec3e8d01)
 
 
 
@@ -83,6 +83,8 @@
 
 ![tumblr_48b52d96ca225429ade293626506e428_e82b7fa4_400](https://github.com/user-attachments/assets/5f85c359-4557-4aa9-807f-cb995b6a0370)![tumblr_48b52d96ca225429ade293626506e428_e82b7fa4_400](https://github.com/user-attachments/assets/5f85c359-4557-4aa9-807f-cb995b6a0370)
 
+
+![giphy](https://github.com/user-attachments/assets/ed1767dc-8071-4cd2-8fd9-7ccd7065998d)
 
 
 ![tumblr_19c3f85bc9bf425656010c15ac4324e1_6ddf0d24_2048](https://github.com/user-attachments/assets/11701857-d967-4d30-b50d-c912a357f833)

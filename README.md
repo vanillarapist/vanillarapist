@@ -18,7 +18,7 @@
 ☆῾ .━۫⌒۫━۫  any prns  ｢ ⋆ ｣ ━۫⌒۫━῾ . ☆
 
 
-dni: muslims n sissies
+⋆ ⊱ ⋆ 𒄬  dni: muslims n sissies ⋆ 𒄬 ⋆ ⊱
 
 
 ![image](https://github.com/user-attachments/assets/feaede8b-c464-4fc7-9eaf-30c2f3b332a3) 

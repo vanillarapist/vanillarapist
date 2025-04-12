@@ -22,7 +22,7 @@ dni: muslims n sissies
 
 
 
-- i have (hyper?)fixation on kaito momota, saimota and drv3 generally!!!
+- i have (hyper?)fixation on kaito momota, saimota and drv3 generally!!!!!!!
 - i also write text with a quirk n always ignore the first letter in caps lock n if it make u feel uncomfortable just endure lol
 
 

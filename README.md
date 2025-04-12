@@ -90,7 +90,8 @@
 ![tumblr_48b52d96ca225429ade293626506e428_e82b7fa4_400](https://github.com/user-attachments/assets/5f85c359-4557-4aa9-807f-cb995b6a0370)![tumblr_48b52d96ca225429ade293626506e428_e82b7fa4_400](https://github.com/user-attachments/assets/5f85c359-4557-4aa9-807f-cb995b6a0370)
 
 
-![giphy](https://github.com/user-attachments/assets/ed1767dc-8071-4cd2-8fd9-7ccd7065998d)  ![Без названия795_20250412183115](https://github.com/user-attachments/assets/8121fd8c-2514-4cab-b3ab-4026d41f8451)
+![giphy](https://github.com/user-attachments/assets/ed1767dc-8071-4cd2-8fd9-7ccd7065998d)     ![Без названия795_20250412183115](https://github.com/user-attachments/assets/5b31fe2b-3bd9-4f94-85f5-4d3b6e3f8d43)
+
 
 
 

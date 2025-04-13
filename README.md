@@ -78,7 +78,7 @@
 
 
 
-- i also write text with a quirk n always ignore the first letter in caps lock without commas n if it make u feel uncomfortable just endure lol
+- i write text with a quirk n always ignore the first letter in caps lock n write without commas. if it make u feel uncomfortable just endure lol
 
 
 - i have (hyper?)fixation on kaito momota saimota and drv3 generally!!!!!!!
